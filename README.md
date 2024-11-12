@@ -1,2 +1,2 @@
 # git-course
-i am back and i will do my best to get the top of my tellent
+I am back and I will do my best to get the top of my talent
